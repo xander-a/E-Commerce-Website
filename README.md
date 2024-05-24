@@ -1,1 +1,5 @@
-![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/3ae91cdf-fc42-43b3-a700-6afa571a1f06)
+![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/cb7fb953-ddfa-4aaf-9ecd-8764c6430c9d)![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/3ae91cdf-fc42-43b3-a700-6afa571a1f06)
+![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/7cc52814-fe63-40ed-b311-76939ec13c1d)
+![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/3dc73bce-73a6-410a-b8c2-b0dda87a50d3)
+![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/2bbb5df7-8bed-4cb0-8441-3b407299a677)
+![image](https://github.com/xander-a/E-Commerce-Website/assets/117904036/5d5a9484-110f-4775-a6b1-acc96ff4c993)
